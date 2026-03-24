@@ -1,4 +1,4 @@
 # Try
 
 My Self Shouvik Kumer Maity
- I am Stdent for TIMT.
+I am Stdent for TIMT.
